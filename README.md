@@ -1,0 +1,2 @@
+# Exercicios-legais
+Exercicio maneiro
